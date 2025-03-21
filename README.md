@@ -1,1 +1,1 @@
-# -practice-indices-and-bracket-notation-ramya-k
+# practice-indices-and-bracket-notation-ramya-k
